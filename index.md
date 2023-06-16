@@ -9,7 +9,7 @@ Twitter : [@Lunae_XD](https://twitter.com/Lunae_XD)
 
 Misskey : [@Lunae_XD@misskey.io](https://misskey.io/@Lunae_XD)
 
-Discord : [Lunae #3536](https://discordapp.com/users/452071943613710336)
+Discord : [lunae_xd](https://discordapp.com/users/452071943613710336)
 
 Github : [lunae-f](https://github.com/lunae-f)
 
